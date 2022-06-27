@@ -4,5 +4,5 @@
 - Kunal made this change
 - I love MLH
 - More power to kunal. love the work which your are doing for the community.
--Abhishek finds  community classroom Awesome.
+-Abhishek finds  community classroom Awesome and very useful.
 - Anirudh Sharma finds the Community Classroom initiative really great!
